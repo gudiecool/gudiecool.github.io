@@ -1,1 +1,0 @@
-# gudiecool.github.io
